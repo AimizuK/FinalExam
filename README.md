@@ -1,3 +1,3 @@
 Actividad práctica. 
-Fecha: -----
+Fecha: 5 de Diciembre de 2025
 Nombre: Daniel Sánchez Morales
